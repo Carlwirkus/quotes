@@ -5,3 +5,4 @@
 3. We do not feel justified in giving up what has come to the industry like a gift from heaven on the posibility that a hazard may be involved in it - Frank Howard
 4. A user interface is like a joke, if it needs to be explained, it's not good.
 5. Success is like being pregnant, people say 'congratulations', but nobody knows how many times you got fucked.
+6. Comparison is the thief of joy – Theodore Roosevelt.
