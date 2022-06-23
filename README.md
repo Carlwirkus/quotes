@@ -7,3 +7,4 @@
 5. Success is like being pregnant, people say 'congratulations', but nobody knows how many times you got fucked.
 6. Comparison is the thief of joy – Theodore Roosevelt.
 7. A society grows great when old men plant trees in whose shade they shall never sit.
+8. Because if you say that getting the money is the most important thing you will spend your life completely wasting your time! You'll be doing things you don't like doing in order to go on living - that is to go on doing things you don't like doing! Which is stupid! Better to have a short life that is full of what you like doing then a long life spent in a miserable way. - Alan Watts
